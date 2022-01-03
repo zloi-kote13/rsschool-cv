@@ -1,1 +1,1 @@
-https://zloi-kote13.github.io/rsschool-cv/cv
+https://zloi-kote13.github.io/rsschool-cv/
